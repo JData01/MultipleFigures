@@ -26,7 +26,7 @@ Take care
 Book  
 [PART 1](https://drive.google.com/file/d/1gwzQYdMBfxOXSwVk30tjYEoUFPHWOM9C/view?usp=sharing)  
 [PART 2](https://drive.google.com/file/d/1mRt3kueXgtWz9-bqMn8dKDajdgRdvIRk/view?usp=sharing)  
-[PART 3](https://drive.google.com/file/d/14d3_4lX4mPc09tO-zVM6Yr5TOkY8C3ro/view?usp=sharing)  
+[PART 3](https://drive.google.com/file/d/1E5GgIBcpZXA8vPpqCquc4YQFl6EIE8Co/view?usp=sharing)    
 [PART 4](https://drive.google.com/file/d/1Oc-NISUTMsDLFGH4RiDRPEsTk9TQdOXI/view?usp=sharing)  
 [PART 5](https://drive.google.com/file/d/1pp0cvZjJ1uTb--4splWKdKGRRjIOXwOv/view?usp=sharing)  
 
