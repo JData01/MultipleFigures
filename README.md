@@ -12,7 +12,7 @@ There is minimum text on purpose. I want you to be curious, look for yourself an
 
 The lack of interpretation of the discovered shapes is intentional, as I do not want to impose my view on what you are looking at.
 
-Finally, I think what I am presenting in this manuscript ties in very nicely with the Chase Hughes video [They Ancients Decoded Reality](https://www.youtube.com/watch?v=ADYdypHZb2A)
+I think what I am presenting in this manuscript ties in very nicely with the Chase Hughes video [They Ancients Decoded Reality](https://www.youtube.com/watch?v=ADYdypHZb2A)
 
 I genuinely believe that this book should be free. That is why I selected this format. This knowledge belong to everybody and not only a selected few.
 
@@ -28,6 +28,6 @@ Book
 [PART 2](https://drive.google.com/file/d/1mRt3kueXgtWz9-bqMn8dKDajdgRdvIRk/view?usp=sharing)  
 [PART 3](https://drive.google.com/file/d/1E5GgIBcpZXA8vPpqCquc4YQFl6EIE8Co/view?usp=sharing)  
 [PART 4](https://drive.google.com/file/d/1Oc-NISUTMsDLFGH4RiDRPEsTk9TQdOXI/view?usp=sharing)  
-[PART 5](https://drive.google.com/file/d/1pp0cvZjJ1uTb--4splWKdKGRRjIOXwOv/view?usp=sharing)  
+[PART 5](https://drive.google.com/file/d/1Uo2TOh_L7-t9WpJhy1eQmYD1vx6Z0167/view?usp=sharing)  
 
 I have to disclose that no AI was used on the images presented.
