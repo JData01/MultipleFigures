@@ -24,7 +24,7 @@ Finally, I am sure you already do, but please continue to honor and care for the
 Take care
 
 Book  
-[PART 1](https://drive.google.com/file/d/1gwzQYdMBfxOXSwVk30tjYEoUFPHWOM9C/view?usp=sharing)  
+[PART 1](https://drive.google.com/file/d/14tEkNepkyQviNvLGzj3VAz0d5aslapha/view?usp=sharing)  
 [PART 2](https://drive.google.com/file/d/1mRt3kueXgtWz9-bqMn8dKDajdgRdvIRk/view?usp=sharing)  
 [PART 3](https://drive.google.com/file/d/1E5GgIBcpZXA8vPpqCquc4YQFl6EIE8Co/view?usp=sharing)  
 [PART 4](https://drive.google.com/file/d/1Oc-NISUTMsDLFGH4RiDRPEsTk9TQdOXI/view?usp=sharing)  
