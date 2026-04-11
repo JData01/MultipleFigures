@@ -28,6 +28,6 @@ Book
 [PART 2](https://drive.google.com/file/d/1mRt3kueXgtWz9-bqMn8dKDajdgRdvIRk/view?usp=sharing)  
 [PART 3](https://drive.google.com/file/d/1E5GgIBcpZXA8vPpqCquc4YQFl6EIE8Co/view?usp=sharing)  
 [PART 4](https://drive.google.com/file/d/1Oc-NISUTMsDLFGH4RiDRPEsTk9TQdOXI/view?usp=sharing)  
-[PART 5](https://drive.google.com/file/d/1U6HvsrmGNJgCMDLF39oYfpxoSh5MEiJR/view?usp=sharing)  
+[PART 5](https://drive.google.com/file/d/1Lnky4f1F3mKOIQ1cGm35JVCRmaUwkO_q/view?usp=sharing)  
 
 I have to disclose that no AI was used on the images presented.
